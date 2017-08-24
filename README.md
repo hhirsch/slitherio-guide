@@ -42,11 +42,11 @@ At the center you will be confronted with a lot of temptations. Food is plentifu
 Just remember that if you are dead then you'll lose all of your points. Always remember this before boosting to get the
 most bites out of a corpse.
 
-To get more piece and quiet you might even want to stray to the outer regions of the map. However I was never able to
+To get more peace and quiet you might even want to stray to the outer regions of the map. However I was never able to
 get as many points there as I got in the center.
 
 ## Coming to terms with death
 There are plenty of situations in the game where you can not avoid dying or you lack the skill to do so. 
 Don't beat yourself up over it. It means you can start all over and experience all the different stages again.
 
-If you are sourounded by a bigger snake and it is slowly closing in on you use the situation to try to charge for its head.
+If you are surrounded by a bigger snake and it is slowly closing in on you use the situation to try to charge for its head.
