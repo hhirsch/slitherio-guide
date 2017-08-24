@@ -1,4 +1,4 @@
-# How to be long in Slither.io
+# How to get long in Slither.io
 Slither.io is an exercise in self discipline and tests the control you have over your greed and anger.
 ## Coming to terms with the limitations of abstract representation
 This text tries to translate direct experience to abstract ideas. This means the absolute truth can't be
